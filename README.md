@@ -1,7 +1,8 @@
 JANGHEE CHO
 ༼ つ ◕_◕ ༽つ
-
-🐯 Categorical Data Analysis Team
+  
+SKKU Library and Information Science / Statistics  
+P-SAT Categorical Data Analysis Team🐯
 
 
 
