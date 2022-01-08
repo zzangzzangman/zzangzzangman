@@ -1,6 +1,4 @@
-JANGHEE CHO
-༼ つ ◕_◕ ༽つ
-  
+GYFL Spanish
 SKKU Library and Information Science / Statistics  
 
 
