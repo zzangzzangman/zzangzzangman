@@ -1,4 +1,4 @@
-SKKU Library and Information Science / Statistics  
+Major in  Library and Information Science / Statistics  
 
 
 
